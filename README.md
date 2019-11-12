@@ -1,2 +1,1 @@
-# Vasudev-Chaturvedi
-Vasudev Chaturvedi, founder secretary of Swastava Cancer care, aims at spreading awareness among the people on Cancer. The Care center also screened for early detection of Breast, Ovarian, and oral cancers and in guiding them in the following treatment. He is a highly talented professional who has administrative as well as marketing experience in both the private and public sectors. He not only passionated to his works but also, have helping nature particularly increasing awareness among the people, on Cancer disease.
+
